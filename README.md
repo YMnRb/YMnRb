@@ -1,4 +1,10 @@
-DON'T READ ME
+I'm YMnRb. 
+A Senior High Student. 
+Male. 
+
+???
+
+Thank you. 
 
 <!--
 ### Hi there 👋
